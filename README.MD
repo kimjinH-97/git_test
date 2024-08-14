@@ -3,4 +3,4 @@
 - 모코코 귀여워
 - 깃허브 어려워
 
-![모코코](D:/진혁/data/mokoko.png)
+![모코코](https://upload3.inven.co.kr/upload/2023/08/11/bbs/i13137837364.jpg?MW=800)
